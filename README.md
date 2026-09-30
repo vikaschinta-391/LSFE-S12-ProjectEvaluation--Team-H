@@ -29,4 +29,4 @@ Harish – 2620080071
 
 OBJECTIVE - 
 To provide students with a platform to improve their speaking skills, confidence, teamwork, and critical thinking.
-Think. Speak. Debate.
+Think.Speak.Debate.
